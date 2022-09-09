@@ -8,7 +8,6 @@
 
 * __e-mail:__ egor.mackevich@gmail.com
 
-
 ## About Myself: 
 
 I am a responsible, purposeful and responsive person.
